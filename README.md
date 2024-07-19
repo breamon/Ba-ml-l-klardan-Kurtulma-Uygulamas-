@@ -1,0 +1,1 @@
+# Ba-ml-l-klardan-Kurtulma-Uygulamas-
